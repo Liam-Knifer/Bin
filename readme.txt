@@ -1,0 +1,1 @@
+Greetings, this repository is mainly purposed for uploading random files and/or projects I make that arent part of a specific larger project. Browse as you please, I doubt you'll find anything overly exciting. :)
